@@ -1,0 +1,1 @@
+- $11.92 [100% Original NT40 Rechargeable Battery For Motorola MOTO G Pure 2021 XT2163-4 SmartPhone 4000mAh Batteria Batteries+Free tools](https://www.aliexpress.us/item/3256804155588947.html)
